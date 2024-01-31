@@ -1,10 +1,18 @@
 # Virtual-Internships---MeriSkill
 
-![image](https://github.com/lnsimha95/Virtual-Internships---MeriSkill/assets/109967940/84d5a438-b32a-44d0-976b-0a05394079ed)
+
+![Screenshot (360)](https://github.com/lnsimha95/Virtual-Internships---MeriSkill/assets/109967940/04612f71-2061-4e20-8697-d96b18ef89a5)
 
 
 
 
 
 
-![image](https://github.com/lnsimha95/Virtual-Internships---MeriSkill/assets/109967940/66d605cc-67ce-4cc0-aa73-cf3ace303cf4)
+
+![Screenshot (361)](https://github.com/lnsimha95/Virtual-Internships---MeriSkill/assets/109967940/5f8c8301-ff7c-4de8-8ac8-26e1f8be2965)
+
+
+
+
+
+
